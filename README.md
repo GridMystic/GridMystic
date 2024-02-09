@@ -2,7 +2,7 @@
 
 😪 The goer to bed.
 
-🖼 Meme maker and enjoyer.
+🖼 Meme enjoyer.
 
 🎪 Hobbies - video games, ttrpgs, larp, anime, manga/hua/hwa, web novels.
 <!---

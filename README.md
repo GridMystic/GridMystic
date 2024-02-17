@@ -1,4 +1,4 @@
-📚 Knowledge eater.
+⚔ GM
 
 😪 The goer to bed.
 
